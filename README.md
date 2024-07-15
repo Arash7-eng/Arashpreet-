@@ -8,8 +8,8 @@ _**First Day In College**_:-
 
 _Date:-10july,2024_
 
-Hello everyone! Today is my first day in college whose name is "Guru Nanak Dev Engineering College ". Yesterdays night is very uncomfortable for me because i have feared about tomorrow means at present today. what is happening that day . I got up early in the morning and do my all routine. Then i go to college and approach here . Then i find gurudwara sahib because all functions are started from there 
-then i find gurudwara sahib there is 9:00 clock and that's a final time to go there according to schedule. I wash my hands and put my slippers in to the shoes rank where is located outside the gurdwara sahib. Then i go inside tge gurdwara sahib and in the presence of "Guru Granth Sahib " i pray for myself and my all friends who are started there journey of b tech in different branches. 
+<h4>Hello everyone! Today is my first day in college whose name is "Guru Nanak Dev Engineering College ". Yesterdays night is very uncomfortable for me because i have feared about tomorrow means at present today. what is happening that day . I got up early in the morning and do my all routine. Then i go to college and approach here . Then i find gurudwara sahib because all functions are started from there 
+then i find gurudwara sahib there is 9:00 clock and that's a final time to go there according to schedule. I wash my hands and put my slippers in to the shoes rank where is located outside the gurdwara sahib. Then i go inside tge gurdwara sahib and in the presence of "Guru Granth Sahib " i pray for myself and my all friends who are started there journey of b tech in different branches.</h4>
 
 
 **Shabad Kirtan**
